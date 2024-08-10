@@ -1,1 +1,1 @@
-# aviator.zakaz.github.io
+# aviator-krysha.github.io
